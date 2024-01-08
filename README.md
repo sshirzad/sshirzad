@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sshirzad
 - 👀 I’m interested in volleyball 
 - 🌱 I’m currently learning how to use AI
-- 💞️ I’m looking to collaborate on humanitarian aid to the displaced community  
+- 💞️ I’m looking to collaborate on social activities   
 - 📫 How to reach me via Whatsapp 
 
 <!---
